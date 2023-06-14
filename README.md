@@ -14,3 +14,6 @@
 &nbsp;
 
 <a href="https://tvtropes.org/pmwiki/no_outbounds.php?o=https://peykezaban.com/">tvtropes.org</a>
+&nbsp;
+
+<a href="https://zpravy.idnes.cz/valka-v-syrii-drogy-v-libanonu-dek-/redir.aspx?url=https://peykezaban.com/">zpravy.idnes.cz</a>
