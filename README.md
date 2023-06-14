@@ -17,3 +17,9 @@
 &nbsp;
 
 <a href="https://zpravy.idnes.cz/valka-v-syrii-drogy-v-libanonu-dek-/redir.aspx?url=https://peykezaban.com/">zpravy.idnes.cz</a>
+
+&nbsp;
+
+&nbsp;
+
+<a href="https://www.purdue.edu/newsroom/php/feed2js-hp-tmp-smb/feed2js.php?src=https://peykezaban.com&amp;num=5&amp;utf=y">purdue.edu</a>
