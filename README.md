@@ -27,6 +27,9 @@
 
 &nbsp;
 
+<a href="[https://ecms.des.wa.gov/ECMSUserManager/ForgotPassword.aspx?system=5&amp;startURL=https://peykezaban.com&amp;ReturnUrl=%2FECMS](https://naghshnews.ir/)">نقش نیوز</a>
+&nbsp;
+
 <a href="https://www.purdue.edu/newsroom/php/feed2js-hp-tmp-smb/feed2js.php?src=https://peykezaban.com&amp;num=5&amp;utf=y">purdue.edu</a>
 <h1><strong><a href="https://www.iransanatgroup.com/">خرید تجهیزات صنعتی</a></strong></h1>
 
