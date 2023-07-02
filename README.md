@@ -10,3 +10,5 @@
 
 <a href="http://msnho.com/blog/hello-world-0">http://msnho.com/blog/hello-world-0</a>
 <a href="https://capsrw.neocities.org/">https://capsrw.neocities.org/</a>
+
+<a href="https://groups.google.com/g/capsrw/">https://groups.google.com/g/capsrw/</a>
