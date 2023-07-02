@@ -9,3 +9,4 @@
 <a href="https://forms.gle/Ca4Kz9cTjn2yr2xZ8">docs.google.com</a>
 
 <a href="http://msnho.com/blog/hello-world-0">http://msnho.com/blog/hello-world-0</a>
+<a href="https://capsrw.neocities.org/">https://capsrw.neocities.org/</a>
